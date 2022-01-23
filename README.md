@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Unplayed0
+- 👀 I’m interested in FNAF, UT, MC
+- 🌱 I’m currently learning everything! 
